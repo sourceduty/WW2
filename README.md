@@ -45,3 +45,5 @@ Losing lives isn't progressive.
 WW3 at any time in history would advance modern technology to due heightened popularity. Similar to AI right now.
 
 ***
+
+![Aiming Hitler](https://github.com/sourceduty/WW2/assets/123030236/521f358d-9d22-49de-9e27-29f7f91a27a3)
