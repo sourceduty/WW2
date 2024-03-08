@@ -18,11 +18,11 @@ While Hitler's suicide is widely accepted, theories persist regarding alternativ
 
 German military officers disillusioned with Hitler's leadership and the disastrous course of the war may have contemplated removing him from power. This could have involved staging a coup d'état or carrying out a targeted assassination. However, internal resistance to Hitler's regime was largely fragmented and lacked cohesive leadership, making concerted action difficult to organize.
 
-3. Secret Operation:
+2. Secret Operation:
    
 Another scenario involves a covert operation conducted by German special forces or intelligence operatives to eliminate Hitler. Such an operation would have required meticulous planning, including infiltrating Hitler's inner circle and gaining access to his heavily fortified bunker. However, the risks associated with such an undertaking, including the likelihood of discovery and severe repercussions for those involved, would have been substantial.
 
-5. Surrender to Allies:
+3. Surrender to Allies:
    
 As defeat became increasingly inevitable for Nazi Germany, some factions within the military may have considered surrendering to the advancing Allied forces and handing Hitler over to them. However, the loyalty of Hitler's most fervent supporters and the prevailing ideology of the Nazi regime made this option unlikely, as surrender was often equated with betrayal and cowardice.
 
