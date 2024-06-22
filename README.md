@@ -44,5 +44,9 @@ Losing lives isn't progressive.
 
 WW3 at any time in history would advance modern technology to due heightened popularity. Similar to AI right now.
 
+#
+
+![Occupation Museum Sign](https://github.com/sourceduty/WW2/assets/123030236/07eb7ed7-b7fc-495a-8bb6-a13b610a2dde)
+
 ***
 Copyright (C) 2024, Sourceduty - All Rights Reserved.
