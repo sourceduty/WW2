@@ -24,6 +24,8 @@ Lastly, resistance movements in occupied territories disrupted German operations
 #
 ### Analysis of Hitler's Death and Potential German Involvement
 
+![Churchill](https://github.com/sourceduty/WW2/assets/123030236/beacc944-094b-4b90-a240-4e0039449d30)
+
 Introduction:
 
 Adolf Hitler, the infamous leader of Nazi Germany during World War II, met his demise in a complex series of events culminating in his suicide on April 30, 1945. While historical accounts widely accept suicide as the cause, speculation persists regarding alternative scenarios, including the possibility of Hitler being killed by German troops. This report delves into the circumstances surrounding Hitler's death and explores potential strategies that German forces could have employed to eliminate him.
