@@ -1,4 +1,4 @@
-![AK-47 Hitler](https://github.com/sourceduty/WW2/assets/123030236/1b22da23-6225-4b5d-916d-2c2018a748b7)
+![German Bunker](https://github.com/sourceduty/WW2/assets/123030236/0e1940f1-a058-4ee8-a489-a64d2b154cf7)
 
 ### Analysis of Hitler's Death and Potential German Involvement
 
@@ -43,10 +43,6 @@ Sometimes humans go backwards and call this "progress".
 Losing lives isn't progressive.
 
 WW3 at any time in history would advance modern technology to due heightened popularity. Similar to AI right now.
-
-#
-
-![German Bunker](https://github.com/sourceduty/WW2/assets/123030236/0e1940f1-a058-4ee8-a489-a64d2b154cf7)
 
 ***
 Copyright (C) 2024, Sourceduty - All Rights Reserved.
