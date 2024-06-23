@@ -54,5 +54,9 @@ Conclusion:
 
 While speculation regarding alternative scenarios surrounding Hitler's death persists, the prevailing evidence supports the widely accepted account of his suicide. The notion of German troops directly killing Hitler remains speculative, given the lack of concrete evidence and the formidable challenges associated with such an undertaking. Nonetheless, the complex circumstances of Hitler's demise continue to intrigue historians and fuel speculation about what might have been if events had unfolded differently in the final days of World War II.
 
+#
+
+> Alex: *"WW2 baffles me, and Hitler was a kamikaze-like tyrant."*
+
 ***
 Copyright (C) 2024, Sourceduty - All Rights Reserved.
