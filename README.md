@@ -18,6 +18,13 @@ Germany, on the other hand, faced different challenges regarding gun shortages. 
 In the Soviet Union, the situation was particularly critical during the early years of the German invasion. The rapid advance of the Wehrmacht resulted in the loss of vast amounts of territory, including key industrial regions responsible for weapon production. Soviet forces often found themselves outgunned and had to rely on a combination of hastily produced weapons, older models, and equipment received through the Lend-Lease program. Factories were relocated east of the Ural Mountains, and an immense effort was made to ramp up production in these new locations. Despite these challenges, the Soviet Union managed to produce a vast number of firearms, including the famous PPSh-41 submachine gun, which became emblematic of Soviet infantry forces.
 
 #
+### Staged Battles and Records
+
+During World War II, staged "homeland footage" was created specifically for civilian audiences to boost morale and foster a sense of unity on the home front. Filmmakers and photographers captured scenes of fake battles, heroic actions, and military drills, giving the public a dramatized glimpse into the efforts of their troops overseas. Often, these productions featured carefully orchestrated explosions, mock battles, and scripted scenes of soldiers in action, all designed to appear as though they were taking place in active combat zones. By circulating this footage in newsreels, cinemas, and print media, governments sought to strengthen public resolve and provide reassurance that victory was achievable.
+
+To make these staged scenes more convincing, producers used clever techniques, such as shooting from strategic angles and using special effects to simulate real battlefield conditions. Dummy tanks, smoke machines, and elaborate sets helped create the illusion of intense combat, and in many cases, the actors were actual soldiers trained to perform for the camera. The dramatic footage allowed civilians to feel connected to the war effort, even from afar, fostering a sense of pride and resilience in a time of great uncertainty. These productions played a vital role in shaping public perception, reinforcing the idea that their country’s forces were strong, skilled, and unwavering in their fight.
+
+#
 ### World War II Victory
 
 ![Victory](https://github.com/sourceduty/WW2/assets/123030236/0b2f3275-f6e0-48aa-8712-a14f32d26059)
