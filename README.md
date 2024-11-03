@@ -101,10 +101,6 @@ Major advancements in technology during World War II (WWII) were a direct conseq
 World War II was indeed a complex and devastating conflict, and Hitler's leadership played a central role in shaping its trajectory. Adolf Hitler's decisions, particularly toward the end of the war, reflect a sense of desperation and irrationality, which could be compared to the suicidal fanaticism associated with kamikaze tactics used by Japanese pilots.
 
 #
-
-> Alex: *"WW2 baffles me, and Hitler was a kamikaze-like tyrant."*
-
-#
 ### Related Links
 
 [WW3](https://github.com/sourceduty/WW3)
